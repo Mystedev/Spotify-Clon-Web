@@ -1,1 +1,2 @@
-![image](https://github.com/Mystedev/Spotify-Clon-Web/assets/138665791/5aa31808-4e1e-4482-83f5-d3f93384c2f0)
+![spotify](https://github.com/user-attachments/assets/f95df07c-3fc6-4114-9873-11253b5f84fd)
+
